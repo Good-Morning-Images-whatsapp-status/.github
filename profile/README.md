@@ -24,15 +24,15 @@ There are different types of good morning images. Some of the most common ones a
 
 1. **Nature Images**  
    These include pictures of sunrise, mountains, trees, rivers, or flowers. They give a peaceful and fresh start to the day.
-  ![30+ Good Morning Flower Images-Start Your Day with Nature’s Smile](https://techaily.com/30-good-morning-flower-images-start-your-day-with-natures-smile/)
+[30+ Good Morning Flower Images-Start Your Day with Nature’s Smile](https://techaily.com/30-good-morning-flower-images-start-your-day-with-natures-smile/)
 
 3. **Coffee Images**  
    Some people prefer to send religious or spiritual pictures. These may include prayers, gods, or holy texts. They give strength and peace of mind.
-   ![40+ Good Morning Coffee | Cup of Coffee with Flowers](https://techaily.com/40-good-morning-coffee-cup-of-coffee-with-flowers/)
+   [40+ Good Morning Coffee | Cup of Coffee with Flowers](https://techaily.com/40-good-morning-coffee-cup-of-coffee-with-flowers/)
 
 5. **Spiritual Images**  
    These include quotes or sayings about life, hard work, or happiness. They are good for students, workers, or anyone facing challenges.
-   ![Start Your Day with Lord Ganesh Good Morning 50+ Blessings](https://techaily.com/start-your-day-with-lord-ganesh-good-morning-50-blessings/)
+   [Start Your Day with Lord Ganesh Good Morning 50+ Blessings](https://techaily.com/start-your-day-with-lord-ganesh-good-morning-50-blessings/)
 
 
 ## How to Create Your Own Good Morning Image
